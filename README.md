@@ -2,7 +2,8 @@
 
 **RAHUL VEMULA**
 
-https://github.com/vemula-rahul/Introduction/blob/main/Intro.jpg
+![image](https://github.com/vemula-rahul/Introduction/assets/107652878/6e32d296-74a6-4175-8d32-93ee62806a01)
+
 
 
 **About ME**
