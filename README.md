@@ -2,7 +2,7 @@
 
 **RAHUL VEMULA**
 
-https://github.com/vemula-rahul/Introduction/blob/main/USF%20Photo.jpg
+https://github.com/vemula-rahul/Introduction/blob/main/Intro.jpg
 
 
 **About ME**
