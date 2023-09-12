@@ -2,7 +2,7 @@
 
 **RAHUL VEMULA**
 
-![image](https://github.com/vemula-rahul/Introduction/assets/107652878/6e32d296-74a6-4175-8d32-93ee62806a01)
+![image](https://github.com/vemula-rahul/Introduction/assets/107652878/887bd902-5cc8-4261-a292-f027534eeddc)
 
 
 
