@@ -2,8 +2,7 @@
 
 **RAHUL VEMULA**
 
-
-![USF Photo](https://github.com/vemula-rahul/Introduction/assets/107652878/738cd878-eace-4aeb-a677-732340c5cf50)
+https://github.com/vemula-rahul/Introduction/blob/main/USF%20Photo.jpg
 
 
 **About ME**
